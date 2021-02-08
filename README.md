@@ -22,9 +22,9 @@ Only run nd put 3 digit of code🙄😀
 
 ## User and Password
 
-* User Name `simpleuser9999`
+* User Name `cheak fb page`
 
-* Password `turnanirheda`
+* Password `cheak page👽`
 ----
 * Note
 Cheakpoint account will be ok after 10 days🙂
