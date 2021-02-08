@@ -1,7 +1,7 @@
 
-Ind08
+bd08
 ---
-Indian 8 digit password hunter by Demon🔥
+Bangladeshi 8 digit password hunter by Demon🔥
 
 
 ----
